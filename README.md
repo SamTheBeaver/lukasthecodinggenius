@@ -1,1 +1,2 @@
 - idk hmu if you play valorant and ascendent+ i need a duo badly
+- I'll play
